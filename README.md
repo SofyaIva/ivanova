@@ -1,5 +1,5 @@
-![image](https://github.com/user-attachments/assets/a2c78349-e150-4539-8d8a-862ea301479b)
-# Магаз ,,ЗОЛОТОЕ ЯБЛОКО,,
+![image](https://github.com/user-attachments/assets/a2c78349-e150-4539-8d8a-
+# ЗОЛОТОЕ ЯБЛОКО
 
 Маркетплейс с уходовой и декоративной косметикой для вашего лица и тела
 
